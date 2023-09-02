@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-My name is Weronika. I study medicine in Medical University of Warsaw, Poland.
+My name is Weronika. I study medicine at Medical University of Warsaw, Poland.
 
 I have a huge aspire to develop some new skills in coding and expand my horizons in this field.✨
 
